@@ -1,1 +1,1 @@
-# Up at : mertselimb.me/galery
+# Up at : https://mertselimb.me/galery
